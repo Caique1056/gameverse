@@ -1,2 +1,0 @@
-# gameverse
-Sargentão Games
